@@ -17,6 +17,6 @@ Studied at Yasodara Devi Balika Vidyalaya.
 
 Lives in Gampaha
 
-From Gampaha
+
 
 linktr.ee/chamariascharya
