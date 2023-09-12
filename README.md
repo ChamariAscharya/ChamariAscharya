@@ -1,6 +1,6 @@
 # https-github.com-ChamariAscharya
 Hi there !!
-https://raw.githubusercontent.com/ChamariAscharya/ChamariAscharya/ac85b13a704a898ea8cd60757cca9b73b29ec535/hi%20(1).gif
+
 
 Works at Volunteer at Sasnaka sansada
 
