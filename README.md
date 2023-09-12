@@ -24,4 +24,4 @@ Lives in Gampaha
 
 
 linktr.ee/chamariascharya
-Add animated emoji to README
+
